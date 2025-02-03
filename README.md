@@ -1,2 +1,2 @@
 # mcrafter39.github.io
-first project website
+skibidi sigma rizz
